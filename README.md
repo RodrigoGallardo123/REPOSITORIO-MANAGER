@@ -7,8 +7,5 @@ Repositorio Manager Script
 
 ==================================================================================
 
-☆ https://t.me/admmanagerfree ☆
+☆ RODRIGO GALLARDO VPS ☆
 =================================================
-TEAM [ ILLUMINATI ⃘⃤꙰✰ ] @El_Gato
-
-[ FULL SCRIPTS ⃘⃤꙰✰ ] && VPS
